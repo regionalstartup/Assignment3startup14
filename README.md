@@ -101,7 +101,3 @@ o	mobility
 Investment in die IT
 Die Prezi
 http://prezi.com/jtv-gmcry4jh/?utm_campaign=share&utm_medium=copy
-
-
-Regionalstartup Hallo00
-
